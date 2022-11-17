@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SappyV
+- 👋 Hi, I’m @Saipriya
 - 👀 I’m interested in creating new projects
 - 🌱 I’m currently learning user experience design
 - 📫 How to reach me via saipriya.vinta@gmail.com
